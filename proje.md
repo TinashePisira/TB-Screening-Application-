@@ -1,0 +1,1 @@
+I am deeply grateful to PLP for this invaluable opportunity. The entire cohort has been tremendously beneficial, significantly advancing my career. I now feel fully prepared and confident to enter the industry as an IT professional.
